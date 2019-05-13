@@ -1,1 +1,0 @@
-# Quest-for-a-CSGO-Knife-1
